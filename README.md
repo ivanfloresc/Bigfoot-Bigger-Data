@@ -1,2 +1,2 @@
 # Bigfoot-Bigger-Data
-Ivan's, Alix's, and Ivan's Group Project
+Ivan's, Alix's, and Hannah's Group Project
